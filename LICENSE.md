@@ -1,4 +1,4 @@
-#  
+#  natural disaster survival advanced Script is the best natural disaster survival Script, featuring custom skins and fly. Safe and powerful for all
 
 
 
